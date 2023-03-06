@@ -15,9 +15,13 @@ We welcome contributions from AI experts, researchers, and enthusiasts who are i
 You can also follow us on social media to stay up-to-date with our latest articles and news:
 
 Website: https://trituenhantao.io
+
 Facebook: https://www.facebook.com/trituenhantao
+
 FB Group: https://www.facebook.com/groups/trituenhantao.io/
+
 Twitter: https://twitter.com/trituenhantao
+
 Youtube: https://www.youtube.com/@trituenhantaoio/
 
 Thank you for visiting trituenhantao.io, and we hope you enjoy our content!
